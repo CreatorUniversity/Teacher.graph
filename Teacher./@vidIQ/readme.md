@@ -6,3 +6,4 @@ https://www.youtube.com/vidiq
 
 # index:
 - [How Much YouTube Pays for 1,000 Subs](https://youtu.be/q6Y5W1kRAi8)
+- [The Fastest Way to 1,000 Subs in 2026](https://youtu.be/A6nGdWlcdaE)
